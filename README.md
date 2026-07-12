@@ -1,2 +1,2 @@
 # site
-portfólio :)
+Mostly for cadence pcell skill
